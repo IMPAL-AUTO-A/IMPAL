@@ -1,4 +1,4 @@
-SI Pemesanan AYAM GEPREK
+SI Pemesanan Ayam Geprek
 
 Anggota Kelompok:
 Cindy Charella P.H (1301170764)
